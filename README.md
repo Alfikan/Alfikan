@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Alfikan
-- 👀 I’m interested in coding dance and sports game 
+- 👀 I’m interested in coding  and sports game 
 - 🌱 I’m currently learning java 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me  just email me khanalfi988@gmail.com
